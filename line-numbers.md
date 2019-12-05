@@ -2,7 +2,7 @@
 #### 2
 #### 3 Emri acts like a 4 year old.  
 #### 4
-#### 5
+#### 5 Emri is bad at COD
 #### 6
 #### 7 Esmin is a very bad dragon ball fan
 #### 8
